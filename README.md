@@ -1,0 +1,1 @@
+# Bot-de-sinais-MACD-Forex-11-9-3
